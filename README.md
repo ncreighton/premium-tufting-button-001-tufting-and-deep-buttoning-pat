@@ -1,0 +1,2 @@
+# premium-tufting-button-001-tufting-and-deep-buttoning-pat
+Tired of ending up with crooked buttons or uneven tufts after hours of meticulous work? The Tufting and Deep Buttoning Pattern Layout Tracker eliminates guesswork and wasted fabric by giving you a precise, digital blueprint for every button and fold.  This Notion template solves the chaos of manual pattern plotting by providing a structured databas
